@@ -13,17 +13,18 @@ Your responses may be point form, or 1–2 paragraphs about each site as long as
 
 ---
 ## Site 1
-
+https://www.mayoclinic.org/diseases-conditions/chronic-sinusitis/symptoms-causes/syc-20351661
+Google search 
 
 
 ---
 ## Site 2
-
+https://www.youtube.com/user/mayoclinic
 
 
 ---
 ## Site 3
-
+https://www.instagram.com/barcroft_tv/
 
 
 
